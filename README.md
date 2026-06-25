@@ -3,4 +3,5 @@
 [sociologia](https://www.youtube.com/watch?v=Us4G-ui_uK0)
 
 **Auguste Comte**
+
 _Émile Durkheim_
