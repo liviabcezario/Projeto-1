@@ -8,6 +8,8 @@
 
 _Émile Durkheim_
 
--ciência
--sociedade
--sociedade
+-ciência-
+
+-sociedade-
+
+-sociedade-
