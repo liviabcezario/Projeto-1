@@ -8,8 +8,10 @@
 
 _Émile Durkheim_
 
--ciência-
+-ciência
 
--sociedade-
+-sociedade
 
--sociedade-
+-sociologia
+
+![sociologia](https://media.tenor.com/-3V01Al9gF0AAAAM/buon-natale.gif)
