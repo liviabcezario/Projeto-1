@@ -7,3 +7,6 @@
 **Auguste Comte**
 
 _Émile Durkheim_
+-ciência
+-sociedade
+-sociedade
